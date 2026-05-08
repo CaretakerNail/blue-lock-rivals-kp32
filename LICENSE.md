@@ -1,4 +1,4 @@
-
+Experience blue lock rivals like never before with smart blue lock rivals Script, the #1 Script. Includes god mode and teleport for unbeatable
 
 
 
